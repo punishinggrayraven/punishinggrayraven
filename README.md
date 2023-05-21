@@ -1,16 +1,15 @@
-### Hi there 👋
+### oii boas vindas ao meu perfil 💔
 
-<!--
-**punishinggrayraven/punishinggrayraven** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+se vcs quiserem poden me chamar de SHISUI OU 
 
-Here are some ideas to get you started:
+- ESTOU ESTUSDANDO NA ALURA
+- QUERO SABER MAIS SOBRE A LINGUAGEM JAVASCRIPT
+- QUERO USAR ESSE  ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DOS MEUS PROJETO 🌝
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### quero saber mais 
+
+costa.roni@escola.pr.gov.br
+ 
+ ista roni._.cardoso
+ 
+![]( https://media.tenor.com/nrFNg9BA4rAAAAAd/vera-s-vera.gif) 
